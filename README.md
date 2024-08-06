@@ -7,4 +7,6 @@ Today I Learned
 
 ( https://www.todomate.net/#/ )
 
+(https://www.todomate.net/user/qkenr132)
+
 해당 일과 계획을 첨부하여 게시하도록 하겠습니다.
